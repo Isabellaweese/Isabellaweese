@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computer science!
 - 🌱 I’m currently learning C++!
 - 💞️ I’m looking to collaborate on something, lol
-- 📫 How to reach me weeseIsabellaa@gmail.com or JustIsabella on pinterest!
+- 📫 How to reach me weeseIsabellaa@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm very chronically online ;-;
 
